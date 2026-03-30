@@ -76,5 +76,5 @@ If you are interested in collaboration or contract work, get in touch.
 
 ## Contact
 
-contact@umbriel-systems.com  
+arlo@umbriel-systems.com  
 https://umbriel-systems.com
